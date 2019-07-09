@@ -1,4 +1,4 @@
 Name of the Contributors
 
-1. Kiran Tikare astrokumarkiran@gmail.com
+1. Kiran Tikare 
 2. 
